@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @coolmega382
+- 👀 I’m interested in modding
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 You can't reach me
